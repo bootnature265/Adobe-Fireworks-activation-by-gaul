@@ -1,0 +1,1 @@
+# Adobe-Fireworks-activation-by-gaul
